@@ -2,4 +2,4 @@
 
 ## Project Title
 
-This is a best project ever!
+This is project is amazing and unique!
